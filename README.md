@@ -1,1 +1,0 @@
-# taketom.github.io
